@@ -1,3 +1,3 @@
-# aryanagra01.github.io
+# Tea Time
 
 Hi I coded this kinda with a lot of help
